@@ -3,6 +3,6 @@
 - 🔭 Anti-Doping Professional
 - 🌱 Transitioning into Programming & Tech 
 - 👯 I’m looking for collaborations
-- 💬 AAnything in the Anti-Doping
+- 💬 Anything in the Anti-Doping
 - 📫 kmocwagole@gmail.com
 
